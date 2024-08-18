@@ -1,1 +1,1 @@
-# headacheactiongames.github.io
+google.com, pub-4898041678168137, DIRECT, f08c47fec0942fa0
